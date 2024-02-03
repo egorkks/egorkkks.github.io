@@ -1,2 +1,0 @@
-# egorkkks.github.io
-Ftorovodd
